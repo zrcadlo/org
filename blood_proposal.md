@@ -1,0 +1,3 @@
+N.B: This is a proposal for the [Blood at Science Gallery expo](http://rhizome.org/announce/opportunities/60388/view/)
+
+Ideas: talk about the exoteric in the form of sharing anecdotal writing about the mirror experience; and the esoteric via games, artifacts hidden in the real world, crazy interactive websites, covert and seemingly unrelated projects; the whole idea being to create a space where people can share this and show it to others in different manners without having to be an organized "religious" institution, but a hub for people finding their own way by the process of seeing themselves on entities and experience oft described as "other". 
